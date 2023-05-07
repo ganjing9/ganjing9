@@ -16,6 +16,6 @@
     
 [点击进入干净世界 · 入口9](https://www.ccpdym.com)
     
-![干净世界](https://github.com/ganjing9/ganjing9/blob/main/git-ganjing.jpg?raw=true)
+![干净世界](https://github.com/ganjing9/ganjing9/blob/main/git-ganjing.jpeg?raw=true)
     
 （若暂时访问不了，请过5分钟再试！ 每隔5分钟会自动更换链接）
